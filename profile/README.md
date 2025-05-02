@@ -69,4 +69,4 @@
 ## Conclusion
 *Koikatsu Sunshine* refines the formula of its predecessor with richer gameplay, better visuals, and robust mod support. While targeting a niche audience, its customization depth and open-world elements make it a standout in the life-sim genre.
 
-> **Official Website**: https://tinyurl.com/koikatsu-sunshine
+> **Get this game by click here**: <a href="https://tinyurl.com/koikatsu-sunshine">Download</a>
